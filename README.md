@@ -23,5 +23,5 @@
 
 
 
-  Cannabis Business Operating System
+  Cannabis Business Success Platform
 ```
